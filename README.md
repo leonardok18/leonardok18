@@ -1,9 +1,6 @@
 ### Hi there 👋
 
-<!--
-**leonardok18/leonardok18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+Algumas coisas sobre mim:
 
 
 - 🌱 Estou estudando para me torna um desenvolver FullStack em Phyton.
