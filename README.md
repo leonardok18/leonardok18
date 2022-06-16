@@ -8,4 +8,3 @@ Algumas coisas sobre mim:
 - 🤔 Estou sempre em busca de novos conhecimentos, então sempre terei duvida sobre tudo.
 - 💬 Pèrgunte me a respeito de cultura pop ou literatura e teremos uma longa conversa.
 - 📫 meu email é : rerofreaks@gmail.com;
-- ⚡ Eu adoro jogar dota, se tiver rolando uma partidinha me convide. 
